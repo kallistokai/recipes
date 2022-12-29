@@ -26,7 +26,7 @@
 
 ## Zubereitung
 - im Schnellkochtopf
-- 8 Löcher in Rindfleisch stechen, Nelken und Knoblauch hineinstecken
+- 8 Löcher ins Fleisch stechen, Nelken und Knoblauch hineinstecken
 - 24 h in Marinade einlegen
 - Fleisch in Planzenöl von allen Seiten scharf anbraten und herausnehmen
 - Gemüse für Sofrito und bei Bedarf mehr Pfanzenöl in den Topf geben und braten
