@@ -5,10 +5,10 @@
 - 6 big ones for arepa 'e huevo
 
 ## Ingredients
-- 1.5 cups (225 g) harina PAN (pre-cooked corn flour) 
-- 1.125 tsp (7 g) salt 
-- 1.5 tsp (7 g) butter
-- 1.5 + 1/3 cups (440 ml) hot water (70 °C)
+- 2 cups harina PAN (pre-cooked corn flour) 
+- 1.5 tsp salt 
+- 2 tsp butter
+- 2.5 hot water (70 °C)
 
 ## Preparation
 - mix and knead everything well
