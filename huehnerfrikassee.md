@@ -9,7 +9,7 @@
 - 1 Zwiebel, geschnitten
 - 1 Stange Sellerie, geschnitten
 - 5 EL Pflanzenöl
-- 1,5 TL Salz
+- 2 TL Salz
 - 1 TL Knorr Hühnerbrühe
 - 1/2 TL Pfeffer
 - 3 Lorbeerblätter
