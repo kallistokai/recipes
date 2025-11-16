@@ -8,7 +8,7 @@ Zusammen sehr langsam anbraten:
 
 Dazugeben und aufkochen:
 * 200 ml Sahne
-* 100 g Parmesan
+* 100 g fein geriebener Grana Padano
 * 1 TL Maisstärke
 * Pfeffer
 * Salz
