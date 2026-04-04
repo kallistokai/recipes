@@ -1,10 +1,10 @@
 # Osternester aus Hefeteig
 ### Ergibt: 8 Stück
 
-Gesamtzeit: 2 Std.
-Vorbereitung: 50 Min.
-Backen: 20 Min.
-Ruhen: 50 Min.
+Gesamtzeit: 2 Std.  
+Vorbereitung: 50 Min.  
+Backen: 20 Min.  
+Ruhen: 50 Min.  
 Niveau: Einfach
 
 Rezept von Anna-Lena Zwar
