@@ -65,5 +65,6 @@ Das Blech mit den Teiglingen nochmals mit einem Geschirrtuch abdecken und weiter
 Nach der Gehzeit die bunten Ostereier von den Osternestern nehmen und jedes Nest mit dem verquirlten Ei bestreichen. Die Osternester nach Belieben mit etwas Hagelzucker bestreuen, dann im vorgeheizten Ofen ca. 18-20 Minuten goldbraun backen. Die Osternester vollständig auskühlen lassen, erst dann zum Servieren die bunten Ostereier wieder aufsetzen.
 
 ## Mein Tipp
-So machst du die Osternester haltbar
+### So machst du die Osternester haltbar
+
 Hefeteig-Gebäck schmeckt frisch einfach immer am besten. Damit die Osternester nicht austrocknen kannst du sie jedoch ohne Probleme schon als Teiglinge oder in gebackener Form einfrieren.
